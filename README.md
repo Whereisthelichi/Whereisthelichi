@@ -4,4 +4,4 @@
               (Crypto & DeFi)
 - •currently learning assembly/c#
 - •looking for help with vim
-- 💬 Fun fact? m a regamuffin 
+- 💬Fun fact? m a regamuffin 
