@@ -1,4 +1,4 @@
-### 95% crap 6% math 🤪
+### 95% crap 6% math 😱
 
 - •currently working on Frontier wallet 
               (Crypto & DeFi)
