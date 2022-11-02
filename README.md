@@ -1,5 +1,4 @@
-### 95% crap
-     6% math
+### 95% crap 6% math 🤪
 
 <!--
 **Whereisthelichi/Whereisthelichi** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
