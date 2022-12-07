@@ -1,2 +1,2 @@
-### 95% dullness 6% math 😱
+### 95% dullness 6% math;
 
